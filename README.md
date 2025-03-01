@@ -17,7 +17,7 @@ Currently learning:
 - Slack off because im lazy
 - Occasionally create random stuff
 - Learn new languages
-- 
+
 <!--
 Fun fact: The name "Fire" reflects my love in the color orange
 -->
